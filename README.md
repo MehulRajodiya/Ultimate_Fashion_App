@@ -28,3 +28,4 @@
 ![5x](https://user-images.githubusercontent.com/113773790/234272205-ba9840ae-f5e8-4efb-8dd7-942585e5abcf.png)
 ![3x2](https://user-images.githubusercontent.com/113773790/234274409-e8e31c4f-d2d2-49a6-8fa6-86120fe8bac3.jpg)
 ![8x](https://user-images.githubusercontent.com/113773790/234281407-e8087452-8d66-4ece-93ca-0c145e9556eb.png)
+![8x](https://github.com/MehulRajodiya/Ultimate_Fashion_App/assets/113773790/90b01928-73a5-412b-bfa6-269b04855f68)
