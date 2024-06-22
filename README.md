@@ -29,4 +29,4 @@
 ![3x2](https://user-images.githubusercontent.com/113773790/234274409-e8e31c4f-d2d2-49a6-8fa6-86120fe8bac3.jpg)
 ![8x](https://user-images.githubusercontent.com/113773790/234281407-e8087452-8d66-4ece-93ca-0c145e9556eb.png)
 ![8x](https://github.com/MehulRajodiya/Ultimate_Fashion_App/assets/113773790/90b01928-73a5-412b-bfa6-269b04855f68)
-![download](https://github.com/MehulRajodiya/Ultimate_Fashion_App/assets/113773790/01a24859-83aa-4b9a-bfab-6d04e5efb5ba)
+![download](https://github.com/MehulRajodiya/Ultimate_Fashion_App/assets/113773790/4be41126-7c26-4c57-8804-1b8425d95ec8)
